@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jagerua08@gmail.com**
 
-- 📄 Know about my experiences [i dont have comercial exparience](i dont have comercial exparience)
+- 📄 Know about my experiences: I do have some comercial(freelance) exparience.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
