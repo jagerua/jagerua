@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **JS, API**
 
-- 👨‍💻 All of my projects are available [in my Repos](in my Repos)
+- 👨‍💻 All of my projects are available [in my Repos]
 
 - 💬 Ask me about: **Trust me u wont get much from me.**
 
